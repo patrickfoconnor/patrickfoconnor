@@ -24,7 +24,7 @@ Backend-focused software engineer with 3+ years of experience in regulated enter
 
 ### 🐾 Outside of Work
 
-- I live with a fluffy cat named **Gravy** who acts like a dog
+- I live with a fluffy cat named **Gravy** who is working her 12 steps of Catnip Anonymous
 - Love the outdoors — trails, fresh air, and headspace
 - Into indie rock, folk, ambient electronica, and nonfiction books
 
